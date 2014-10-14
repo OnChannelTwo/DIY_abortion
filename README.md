@@ -12,3 +12,5 @@ http://wombofonesown.wordpress.com/category/uncategorized/
 https://www.dropbox.com/s/18nu8d35gqil15t/AWombofOnesOwn.pdf
 
 We are sharing this publication on github in the spirit of distribution and DIY culture.
+
+We are not medical professionals and thus cannot evaluate the advice in this document. This information is re-shared as a political statement regarding the state of abortion access. Please seek out medical treatment from professionals.
